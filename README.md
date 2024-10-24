@@ -5,6 +5,7 @@
 - 💬 Ask me about: Digital art and how to stay curious! 🎨✨
 - 📫 How to reach me: You can find me on GitHub or on my art Instagram @blissgleam_arts!
 - 😄 Pronouns: She/Her
+- 🤔 I’m looking for help with: Guidance on structuring my roadmap, tips on achieving my goals, and resources for both PHP and Java! 🌟
 - Let's build cool stuffy together! 💫
 
 <!--
