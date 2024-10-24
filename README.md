@@ -2,7 +2,7 @@
 ### Welcome hoomans, I'm  Gail, a curious programmer 💻 and a digital artist that loves learning new ideas ‧₊˚ ☁️⋅♡🪐༘⋆
 - 🌱 I’m currently learning: Java and PHP, diving deeper into OOP and web development! 🐘💡 ♨️
 - 🤔 I’m looking forward to creating: Web projects and Java applications! 🚀✨
-- 💬 Ask me about: Digital art, creating smooth hover effects, and how to stay curious! 🎨✨how to stay curious! 🎨✨
+- 💬 Ask me about: Digital art and how to stay curious! 🎨✨
 - 📫 How to reach me: You can find me on GitHub or on my art Instagram @blissgleam_arts!
 - 😄 Pronouns: She/Her
 - Let's build cool stuffy together! 💫
