@@ -1,4 +1,4 @@
-## Hi there  
+## Hi there  𓏲 ๋࣭ ࣪ ˖🎐
 I’m Gail — I code, I draw, and I collect random ideas until they accidentally become projects. 
 
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⢀⠀⣤⠞⠛⣻⣧⣷⣾⣿⣿⣿⣿⣶⣶⣯⣤⣀⡀⢀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
